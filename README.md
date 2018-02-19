@@ -1,5 +1,7 @@
 Angelina Jolie
 
-Tom Cruise
+Brad Pitt
 
 Tom Hanks
+
+Johnny Deep
