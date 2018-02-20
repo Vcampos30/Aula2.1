@@ -1,7 +1,5 @@
-Angelina Jolie
+-Smells Like Teen Spirit
 
-Brad Pitt
+-The Resistence
 
-Tom Hanks
-
-Johnny Deep
+-Stricken
